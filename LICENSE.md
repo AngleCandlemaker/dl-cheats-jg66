@@ -1,4 +1,4 @@
-
+hidden Scripts for deadlock cheats - auto-hero last hit and auto-hero reveal is the best deadlock cheats scripts, featuring auto-hero last hit and auto-hero reveal. Safe,
 
 
 
